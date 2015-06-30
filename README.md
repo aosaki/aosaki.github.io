@@ -1,2 +1,2 @@
 # aosaki.github.io
-aosaki的博客
+My blog. -.-
