@@ -1,2 +1,2 @@
 # aosaki.github.io
-My blog. -.- ......hhh
+My blog. -.-
